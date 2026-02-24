@@ -6,7 +6,9 @@ Hi, I’m Aisha 👋
 🧠 I’m fascinated by psychology, optimisation, and understanding patterns — whether in data, systems, or human behaviour.  
 🌍 I enjoy connecting technical knowledge with real-world applications.  
 🤝 I’m open to collaborating on beginner-to-intermediate AI, data analysis, or research projects.  
-📚 Ask me about: data fundamentals, GCSE geography (still a favourite), baking experiments, or self-improvement systems.  
+📚 Ask me about: data fundamentals, anything conspiracy related, my current favourite book, or anything self-improvement related  
 📫 How to reach me: Aishakakazi@gmail.com
 😄 Pronouns: she/her  
-⚡ Fun fact: I love analysing patterns — from datasets to urban case studies to why cookies spread in the oven.
+⚡ Fun fact: I love using my creativity to analysing and display patterns — from datasets to urban case studies to why cookies spread in the oven.
+
+Favourite colour: Forever will be pink
