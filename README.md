@@ -11,3 +11,5 @@ Hi, I’m Aisha 👋
 😄 Pronouns: she/her  
 ⚡ Fun fact: I love anything conspiracy/ horror related!
 🎀 Favourite colour: Forever will be pink 🌸
+
+👉 Click here to view my most recent project https://github.com/Aisha-k23/titanic-sql-analysis-thirdproject.git
